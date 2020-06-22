@@ -13,11 +13,11 @@ If you want less depressing stuff, there’s another idiot in this blog. Go and 
 
 **Anxiety** is your body's natural response to stress. It's a feeling of fear or apprehension about what's to come. Learn more about it **here! (<https://www.healthline.com/health/anxiety>)**
 
-This article is little self-centered, and by no means it implies that who’s suffering from it will have it like this, some have it more severe and some have it less.
+This article is little self-centered, and by no means it implies that who’s suffering from it will have it like this, some might have it worse and some have it less.
 
 ![](/img/anxiety.gif)
 
-Anxiety, I knew this word from my childhood, but I only linked it only with excitement about the future and nothing else until I had my first anxiety attack on 7th Nov 2017 around 8pm. I was eating and chatting with someone and yes, the chatting was one of the factors. Since I didn’t know what it was, I just assumed my time came.
+Anxiety, I knew this word from my childhood, but I only linked it with excitement about the future until I had my first anxiety attack on 7th Nov 2017 around 8pm. I was eating and chatting with someone and yes, the chatting was one of the factors. Since I didn’t know what it was, I just assumed my time came.
 
 ![](/img/grimreaper.gif)
 

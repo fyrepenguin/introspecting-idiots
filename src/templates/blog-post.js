@@ -18,7 +18,7 @@ export const BlogPostTemplate = ({
 
   return (
     <section className="section">
-      {helmet || ""}
+      {helmet || ''}
       <div className="container content blogpost">
         <div className="columns">
           <div className="column is-10 is-offset-1">
