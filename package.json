@@ -41,8 +41,8 @@
     "clean": "gatsby clean",
     "start": "npm run develop",
     "build": "npm run clean && gatsby build",
-    "develop": "npm run clean && gatsby develop -H 192.168.56.1 -p 8000",
-    "dev-m": "npm run clean && gatsby develop -H $HOSTNAME -p 8000",
+    "develop": "npm run clean && gatsby develop",
+    "dev-m": "npm run clean && gatsby develop",
     "format": "prettier --trailing-comma es5 --no-semi --single-quote --write \"{gatsby-*.js,src/**/*.js}\"",
     "test": "echo \"Error: no test specified\" && exit 1"
   },
