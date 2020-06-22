@@ -2,18 +2,17 @@
 templateKey: blog-post
 title: My First Anxiety Attack
 date: 2020-06-22T15:54:06.305Z
-description: About my first anxiety attack
+description: "This article is little self-centered. It's about me having
+  anxiety. Not all of us who's suffering from anxiety have it the same, some
+  have it even worse. "
 featuredpost: true
 featuredimage: /img/anxiety.gif
 tags:
   - anxiety
 ---
-
 If you want less depressing stuff, there’s another idiot in this blog. Go and check out his posts
 
-**Anxiety** is your body's natural response to stress. It's a feeling of fear or apprehension about what's to come. Learn more about it **here! (<https://www.healthline.com/health/anxiety>)**
-
-This article is little self-centered, and by no means it implies that who’s suffering from it will have it like this, some might have it worse and some have it less.
+**Anxiety** is your body's natural response to stress. It's a feeling of fear or apprehension about what's to come. Learn more about it **[here!](https://www.healthline.com/health/anxiety)**
 
 ![](/img/anxiety.gif)
 
