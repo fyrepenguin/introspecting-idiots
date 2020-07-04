@@ -25,8 +25,6 @@ I’ll be at a function or a birthday party, hanging out, everybody’s having a
 I’m insomniac, can’t sleep easily. I’m a terrible sleeper. Until 2 years back, I slept like a baby, a real baby. Won’t hear a thing while sleeping and once I close my eyes, no can wake me before at least 6 hours. No thunderstorms, no earthquakes, not even pouring water on my face won’t work sometimes.\
 It’s this goddamned game show I got going on in my brain, all right? Yeah, it’s the worry, the anxiety, the dread. I don’t need a mattress designed by NASA, I need a Xanax and some self-esteem, all right?
 
-
-
 I’m an awkward guy, super awkward. Can’t make eye contact with people. I’m working on it. It’s too intense, too intimate. I don’t know how you people do that. It’s like a sign of respect to look someone in the eye. That blows my mind. It’s too much. Can’t do it. Every time I look someone in the eye, I’m like, well, I guess we’re in love now.
 
 I feel too much. I’m a feely guy. Everything makes me uncomfortable.
@@ -45,21 +43,22 @@ This guy goes, “Oh, yeah, which route you taking?”
 
 I’m tough to be around people. Day jobs or Colleges. I don’t know how you guys do it. Nine to five, eight hours with this group. Then 5:00 rolls around, some guy goes, “Hey, we should all get drinks.” …… “What, are you nuts? You want to hang out more? We’re done, we did it. We’re outside the walls, let’s go home. That’s not happy hour, that’s unpaid overtime for me.”
 
-I like being alone, I really do. You’re ever out to eat with the guys, “Hey, look at that dude sitting by himself.” You’re like, I know …living the dream.
+I like being alone, I really do. If you’re ever out with me to eat in a restaurant and be like, “Hey, look at that dude sitting by himself.”, inside I'll be like "I know …living the dream."
 
-It’s just that weird brain I got. Like, I want people to like me, but I’m scared of people. They bum me out but I need their love. Basically, what I’m saying is if they’re having a party, I don’t want to go, but if they don’t invite me, I’ll kill myself.
+It’s just that weird brain I got. Like, I want people to like me, but I’m scared of people. They bum me out but I need their love. Basically, what I’m saying is if they’re having a party, I don’t want to go.......... But if they don’t invite me, I’ll kill myself.
 
-Come on, Man, introvert. Writing a blog, who knows how many are going to read about you. Well, it’s pretty simple. This is a one-sided conversation. My mom’s a hero to me in this area, She’ll go to any room just off the top, she walks in and starts conversations with anyone. I’m here like “Oh, my god, how do you do that? How do you know what to say? Did you take any class when you’re a kid?”, on the other hand me, I’ll have conversations with people in my brain before we even met. In my brain, I’ll be like “Hey, how are you? How is the family? How is the job?”, and then they look at me and I panic and I just go “Sup?” and my brain goes “Ah, fuck! Damn it, why are you alive?”.
+I push people away, if I feel like they're getting close.
 
-I used to hate girls when I was a kid. They used to get away from everything. Punishments, homework, leaving tuitions early, etc But, now I know what kind of horrible world we live in and what kind of shit they must put up with every day here. But Kids can hate girls, that’s really the only group a kid is allowed to hate. Think about it, if a kid comes to you and say he hates (put some race or religion or any country) …. that would be so weird. By the way, I have total respect for women now and what they have to deal with and go through every fucking day.
+Come on, Man, introvert. Writing a blog, who knows how many are going to read about you. Well, it’s pretty simple. This is a one-sided conversation. I don't have to talk about or deal with this to anyone. Even my best friends don't know about this blog. Probably, they'll never know. \
+My mom’s a hero to me in this area, She’ll go to any room, just off the top, she walks in and starts conversations with anyone. I’m here like “Oh, my god, how do you do that? How do you know what to say? Did you take any class when you’re a kid?”, on the other hand, I’ll have conversations with people in my brain before we even met. In my brain, I’ll be like “Hey, how are you? How is the family? How is the job?”, and then they look at me and I panic and anxiety kicks in and I just go “Suuuuuuup?” and then as asual, my brain goes “Ah, fuck! Damn it, why are you alive?”
+
+I used to hate girls when I was a kid. Mostly because I'm jealous of them. They used to get away from everything. Punishments, homework, leaving tuitions early, etc. But, now I know what kind of horrible world we live in and what kind of shit they must put up with every day here. But Kids can hate girls, that’s really the only group, a kid is allowed to hate. Think about it, if a kid comes to you and say he hates (put some race or religion or any country and finish this sentence again) …. that would be so weird. By the way, I have total respect for women now and feel bad for what they have to deal with and how they go through every fucking day.
 
 I don’t understand a lot of stuff in this world. Why some things are good and the same won’t work in another context. I’m a hypocrite too. Not proud of it but still…
 
-I hate bigotry. I hate religion. I hate cults, my girlfriend’s in a cult and she doesn’t even know it. (probably ex-girlfriend, I still don’t know what our relationship status is. She still has all the cards)
+I hate bigotry. I hate religion. I hate cults, my girlfriend’s in a cult too and she doesn’t even know it. (probably ex-girlfriend, I still don’t know what our relationship status is. She still has all the cards)
 
 I don’t understand political correctness. I don’t know. Like a lot of things.
-
-I push people away, if I feel like they're geting close.
 
 I’m struggling with depression, insomnia, anxiety and few other stuff.
 
